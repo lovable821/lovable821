@@ -1,3 +1,3 @@
 # lovable821
 
-YOLO achievement unlock! 🎉
+Looking for JOB! 🎉
